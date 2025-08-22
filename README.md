@@ -1,5 +1,5 @@
-# 💫 About Me:
-I usually upload fun and small projects<br>Currently Learning : Machine Learning, AI & CEH <br>Side hobbies : Psychology, Social Engineering, Human-Body language, Music & Movies<br>Also making content on Youtube and Streaming on Twitch<br>
+# 👋 Hello Friend, Welcome
+🔭 Currently Learning : Machine Learning, AI & CEH <br>🙂 Other Hobbies : Psychology, Social Engineering, Human-Body language, Music & Movies<br>🎬 Also making content on Youtube and Streaming on Twitch<br>
 
 
 ## 🌐 Socials:
