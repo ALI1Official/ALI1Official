@@ -1,5 +1,5 @@
 # 👋 Hello Friend, Welcome
-🔭 Currently Learning : Machine Learning, AI & CEH <br>🙂 Other Hobbies : Psychology, Social Engineering, Human-Body language, Music & Movies<br>🎬 Also making content on Youtube and Streaming on Twitch<br>
+🔭 Currently Learning : Machine Learning, AI & CEH <br>🙂 Other Hobbies : Psychology, Social Engineering, Human-Body language, Gaming, Music & Movies<br>🎬 Also making content on Youtube and Streaming on Twitch<br>
 
 
 ## 🌐 Socials:
